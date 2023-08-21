@@ -1,1 +1,1 @@
-# A repo for hosting my images. github is gold😍
+# A repo for hosting my images. Github is gold😍
